@@ -24,4 +24,6 @@ Riki Imamura / 今村吏希
 
 [Portfolio](https://imamurariki.github.io/)
 
+[mail](imamurariki.jp@gmail.com)
+
 © 2026 Riki Imamura
